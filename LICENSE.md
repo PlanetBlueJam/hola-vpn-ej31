@@ -1,4 +1,4 @@
-
+smart Touch VPN Addon | double-VPN + smart-DNS offers the most advanced Touch VPN addon, with double-VPN and smart-DNS. Ideal for users who value privacy and security.
 
 
 
